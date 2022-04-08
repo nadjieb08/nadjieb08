@@ -1,14 +1,19 @@
 # Halo
-- 👋 Hai Gw nadjieb08
-- 👀 Gw Baru Belajar buat github🙏
-- 🌱 Dan Jangan Hina saya Saya baru Buat Github ...
-- 📫 Chat Gw di bawah ini ...
+- 👋 Hai Gw [`nadjieb08`](https://github.com/nadjieb08)
+- 🧍 I'm Live In Polewali Mandar
+- 🧑‍🦱 I'm School in MTS Baiturrahim
+- 😁 I'm 13 years old 
+- 📭 Contact me if necessary
+Media sosial
+Wa : [`ᴹᴿ᭄ nadjiebAhmadོ ×፝֟͜×`](wa.me/6282234343854)
+YouTube : [`Jibb Saja Lah`](https://youtube.com/channel/UCE97yvE_S0Hw8J2z41qoQBw)
+Tiktok : [`Ajipp.Edtzz`](tiktok.com/@ajipp.editzz)
+Tiktok2 : [`Kaivan.edtzz`](tiktok.com/@kaivan_edts)
 
-Wa: [`ᴹᴿ᭄ nadjiebAhmadོ ×፝֟͜×`](wa.me/6282234343854)
+Me Popular Repositer
+[`Harukav5RecodeByNadjieb`](https://github.com/nadjieb08/HarukaV5-Recode-By-nadjieb-)
+[`AlphabotV9`](https://github.com/nadjieb08/tes)
 
-YouTube: [`Jibb Saja Lah`](https://youtube.com/channel/UCE97yvE_S0Hw8J2z41qoQBw)
-
-Sudah gitu aja Thanks for see my github🙏🗿
 
 <!---
 nadjieb08/nadjieb08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
