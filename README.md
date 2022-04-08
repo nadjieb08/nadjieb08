@@ -4,9 +4,9 @@
 - 🌱 Dan Jangan Hina saya Saya baru Buat Github ...
 - 📫 Chat Gw di bawah ini ...
 
-Wa: 082234343854
+Wa: [`ᴹᴿ᭄ nadjiebAhmadོ ×፝֟͜×`](wa.me/6282234343854)
 
-YouTube: [Jibb Saja Lah][https://youtube.com/channel/UCE97yvE_S0Hw8J2z41qoQBw]
+YouTube: [`Jibb Saja Lah`](https://youtube.com/channel/UCE97yvE_S0Hw8J2z41qoQBw)
 
 Sudah gitu aja Thanks for see my github🙏🗿
 
