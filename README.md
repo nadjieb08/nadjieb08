@@ -1,3 +1,4 @@
+# Halo
 - 👋 Hai Gw nadjieb08
 - 👀 Gw Baru Belajar buat github🙏
 - 🌱 Dan Jangan Hina saya Saya baru Buat Github ...
@@ -5,7 +6,7 @@
 
 Wa: 082234343854
 
-YouTube: Jibb Aja Lah (Susah di Cari)
+YouTube: [Jibb Saja Lah][https://youtube.com/channel/UCE97yvE_S0Hw8J2z41qoQBw]
 
 Sudah gitu aja Thanks for see my github🙏🗿
 
