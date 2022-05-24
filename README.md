@@ -19,6 +19,8 @@ Me Popular Repositer
 [`Harukav5RecodeByNadjieb`](https://github.com/nadjieb08/HarukaV5-Recode-By-nadjieb-)
 [`AlphabotV9`](https://github.com/nadjieb08/tes)
 
+  ![Snake animation](https://github.com/rafaballerini/rafaballerini/blob/output/github-contribution-grid-snake.svg)
+ 
 
 <!---
 nadjieb08/nadjieb08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
